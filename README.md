@@ -1,1 +1,0 @@
-# practical-6.6
